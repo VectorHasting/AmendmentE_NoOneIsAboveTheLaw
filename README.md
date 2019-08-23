@@ -1,4 +1,4 @@
-# AmendmentA_ProtectingTheBallot
+# AmendmentE_NoOneIsAboveTheLaw
 Amendment to the US Constitution to protect the rule of law.
 
 This is one of 10 Amendements Vector Hasting proposes to the US Constitution to preserve Freedom 
